@@ -1,2 +1,2 @@
 # hell-2022
-relearn
+relearn  , dropped a whole year, I forgot it , so learn again
